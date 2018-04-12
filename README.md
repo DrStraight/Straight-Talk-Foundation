@@ -1,4 +1,4 @@
-<h1 align="center">Straight Talk App </h1>
+<h1 align="center">Straight Talk Foundation App </h1>
 
 ## Straight Talk
 Youth-centred adolescent sexuality and reproductive health program that incorporates a newspaper, a network of clubs, a radio/ TV show, and training programs.
