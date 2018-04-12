@@ -2,7 +2,7 @@
 
 ## Straight Talk
 Youth-centred adolescent sexuality and reproductive health program that incorporates a newspaper, a network of clubs, a radio/ TV show, and training programs.
-![image](https://user-images.githubusercontent.com/11560987/38654566-9a3c202a-3dd5-11e8-8818-ff3e0a3c22a8.png)
+
 ## Our mission
 
 We intend to contribute to combating the spread of HIV/AIDS, reduce teenage pregnancies, promote safe and responsible sexual behaviours, discourage harmful traditional practices, eliminate sexual abuse and promote gender and human rights awareness around these topics.
