@@ -1,5 +1,7 @@
 # Green Talk
 
+![green_talk_400x400](https://user-images.githubusercontent.com/11560987/38654491-394afb74-3dd5-11e8-8fc4-dabafe89734b.jpg)
+
 ## Why plant trees?
 
 It’s a simple thing to do, but has many benefits. It prevents soil erosion, purifies water and recharges groundwater, pro- vides food and habitat for wildlife, and fuel and medicines for
