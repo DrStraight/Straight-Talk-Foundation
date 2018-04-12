@@ -30,10 +30,12 @@ Straight Talk Foundation Values
 **Commitment** – Committing to living our values
 
 ## What We Do
-Straight Talk believes in the power of communication, that is getting young people to talk about their sexuality, how their bodies work and when is the right time to have sex and to prevent unwanted pregnancies.
+The Straight Talk project facilitates collaborative partnerships with adolescents with the aim of developing coping strategies and behavioural life skills that will help young people remain in control of their behaviour. The Straight Talk concept is built on the tenet that youth need information on sexuality and reproductive health so as to be able to make informed decisions about their health and lives.
+
+At the core of all Straight Talk activities is youth participation as a strategy. The Straight Talk Editorial Board is comprised of 4 boys and 4 girls who meet twice per month with adults from the STFK. Along with their peers, these adolescents guide and develop Straight Talk media as part of an interactive and participatory structure has greatly contributed to its popularity.
 
 ## Our Strategies
 The Straight Talk concept is built on the tenet that youth need information on sexuality and reproductive health so as to be able to make informed decisions about their health and lives. At the core of .
 
-## Who we are
+## Who We Are
 Straight Talk is a unique platform for youth in Kenya with a nation-wide outreach and successful in providing Kenyan adolescents with a forum for open dialogue on sexuality and reproductive rights related .
