@@ -31,3 +31,5 @@ Train campers through an activity based curriculum on health, safety, human righ
 To take the participants through interactive sessions on peace, effective communication skills.
 To demonstrate the harmful effects of FGM / HIV/Aids through videos, skits and plays and discuss follow up mechanisms
 Linda Dada also uses all other strategies under Straight Talk towards achieving our core goal of girls empowerment in  Kenya
+
+![image](https://user-images.githubusercontent.com/11560987/38655537-eb9ee31c-3dda-11e8-8c16-009ac59f602a.png)
