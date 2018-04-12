@@ -1,6 +1,9 @@
 # Straight Talk Newspapers
 At the core of all Straight Talk activities is youth participation as a strategy. The Straight Talk Editorial Board is comprised of 4 boys and 4 girls who meet twice per month with adults from the STFK. Along with their peers, these adolescents guide and develop Straight Talk media as part of an interactive and participatory structure has greatly contributed to its popularity.
 
+![screen-shot-2018-04-11-at-6 10 06-pm-300x136](https://user-images.githubusercontent.com/11560987/38654531-657d7640-3dd5-11e8-9856-4f8778fd6b75.png)
+
+
 ## Straight Talk/ Teen Talk SRHR Nespapers
 
 Straight Talk has been known for its niche in speaking the language youth understand and in the recent past our publications have received rave opinions.
