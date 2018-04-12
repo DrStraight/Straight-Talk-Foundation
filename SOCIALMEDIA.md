@@ -1,5 +1,6 @@
 # Straight Talk on Social Media – Interactions and Sex Education online
 
+![facts-friday-new-300x298](https://user-images.githubusercontent.com/11560987/38654237-f0ea5466-3dd3-11e8-84c6-57488597aba6.jpg)
 
 
 Our social media presence is robust and we boast of almost fifteen thousands facebook likes on our official page and 3,500 followers on our twitter.
