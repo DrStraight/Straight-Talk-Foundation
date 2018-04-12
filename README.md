@@ -2,6 +2,7 @@
 
 ## Straight Talk
 
+
 ## Our mission
 
 We intend to contribute to combating the spread of HIV/AIDS, reduce teenage pregnancies, promote safe and responsible sexual behaviours, discourage harmful traditional practices, eliminate sexual abuse and promote gender and human rights awareness around these topics.
@@ -28,3 +29,11 @@ Straight Talk Foundation Values
 
 **Commitment** – Committing to living our values
 
+## What We Do
+Straight Talk believes in the power of communication, that is getting young people to talk about their sexuality, how their bodies work and when is the right time to have sex and to prevent unwanted pregnancies.
+
+## Our Strategies
+The Straight Talk concept is built on the tenet that youth need information on sexuality and reproductive health so as to be able to make informed decisions about their health and lives. At the core of .
+
+## Who we are
+Straight Talk is a unique platform for youth in Kenya with a nation-wide outreach and successful in providing Kenyan adolescents with a forum for open dialogue on sexuality and reproductive rights related .
